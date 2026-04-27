@@ -1,0 +1,9 @@
+remote_theme: pages-themes/minimal@v0.2.0
+plugins:
+  - jekyll-sitemap
+  - jekyll-seo-tag
+
+url: "https://github.io"
+baseurl: "/Trockeneis"
+title: Trockeneis Ratgeber
+description: Offizieller Ratgeber für Trockeneis-Anwendungen & Shop Informationen.
