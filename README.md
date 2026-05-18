@@ -18,6 +18,10 @@ Spezialisierte Lösungen für Industrie, Labore, Gastronomie und Privatkunden:
 ## Sicherheit & Handhabung
 Da Trockeneis eine Temperatur von -78,5 °C hat, ist der richtige Umgang entscheidend. Lesen Sie unsere offiziellen **[Sicherheitshinweise für Trockeneis](https://www.trockeneis.shop/sicherheitshinweise-trockeneis/)**.
 
+## 🇳🇱 🇧🇪 🇱🇺 Informatie voor Nederland, België & Luxemburg
+Bent u op zoek naar de Nederlandse versie of wilt u droogijs bestellen voor de Benelux-regio? 
+* 👉 **Bekijk onze speciale gids:** [Droogijs kopen Benelux (Nederlands)](droogijs-kopen-benelux.md)
+
 ---
 *Anzeige / Werblicher Inhalt von Trockeneis.shop*  
 [Impressum](https://www.trockeneis.shop/impressum/) | [Datenschutzerklärung](https://www.trockeneis.shop/datenschutzerklaerung/)  
