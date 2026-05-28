@@ -23,6 +23,9 @@ Bent u op zoek naar de Nederlandse versie of wilt u droogijs bestellen voor de B
 * 👉 **Bekijk onze speciale gids:** [Droogijs kopen Benelux (Nederlands)](droogijs-kopen-benelux.md)
 
 ---
-*Anzeige / Werblicher Inhalt von Trockeneis.shop*  
-[Impressum](https://www.trockeneis.shop/impressum/) | [Datenschutzerklärung](https://www.trockeneis.shop/datenschutzerklaerung/)  
+Anzeige / Werblicher Inhalt von [TERLATEC engineering GmbH](https://www.terlatec.de/) · [CO₂ Schneestrahlen](https://www.terlatec.de/) & Trockeneisstrahlgeräte
+
+[Impressum](https://www.trockeneis.shop/impressum/) | [Datenschutzerklärung](https://www.trockeneis.shop/datenschutzerklaerung/)
+
 *Status: Wöchentliches Update aktiv. Dokumentation der Versandstandards für Trockeneis.shop.*
+
