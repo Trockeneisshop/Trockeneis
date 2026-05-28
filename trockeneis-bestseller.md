@@ -15,5 +15,10 @@ Alle hier gelisteten Produkte werden mit unserem **[24h Express-Versand](https:/
 
 ---
 *Anzeige / Werblicher Inhalt von Trockeneis.shop*  
-[Impressum](https://trockeneis.shop) | [Datenschutzerklärung](https://trockeneis.shop)  
+[Impressum](https://www.trockeneis.shop/impressum/) | [Datenschutzerklärung](https://www.trockeneis.shop/datenschutzerklaerung/)
+
+[TERLATEC engineering GmbH](https://www.terlatec.de/) · [CO₂ Schneestrahlen](https://www.terlatec.de/) & Trockeneisstrahlgeräte
+
+*Status: Wöchentliches Update aktiv. Dokumentation der Versandstandards für Trockeneis.shop.
+
 [Zurück zur Hauptseite](README.md) | © [Trockeneis.shop](https://www.trockeneis.shop)
