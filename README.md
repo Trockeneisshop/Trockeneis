@@ -1,6 +1,6 @@
 # Trockeneis Ratgeber & Shop Informationen
 
-Herzlich willkommen im Informations-Repository von [Trockeneis.shop](https://www.trockeneis.shop). Hier dokumentieren wir wöchentlich Wissenswertes rund um den Einsatz und Versand von festem Kohlendioxid (CO2).
+Herzlich willkommen im Informations-Repository von [Trockeneis.shop](https://www.trockeneis.shop). Hier dokumentieren wir regelmäßig Wissenswertes rund um den Einsatz und Versand von festem Kohlendioxid (CO2).
 
 ## 24h Express-Versand & Logistik
 * **Overnight Lieferung:** Bestellungen (Mo–Do bis 10 Uhr) werden innerhalb Deutschlands per **[24h Express-Versand](https://www.trockeneis.shop)** zugestellt.
