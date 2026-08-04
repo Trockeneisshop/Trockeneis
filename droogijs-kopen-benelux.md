@@ -1,50 +1,101 @@
-# 🇳🇱 🇧🇪 🇱🇺 Droogijs kopen: Populairste hoeveelheden voor Nederland, België & Luxemburg
+# 🇳🇱 🇧🇪 🇱🇺 Droogijs kopen – Express levering binnen de Benelux
 
-Voor een snel overzicht hebben we hier de meest bestelde producten voor de volledige Benelux-regio van [Trockeneis.shop/nl](https://www.trockeneis.shop/nl) samengesteld. Wilt u vers droogijs kopen voor de Nederlandse, Belgische en Luxemburgse horeca, evenementen, laboratoria of industriële sectoren? Deze selectie is speciaal afgestemd op uw behoeften.
+Voor bedrijven en particulieren die **droogijs willen kopen** biedt **Trockeneis.shop** een snelle en betrouwbare levering binnen de Benelux. Wij leveren vers droogijs voor horeca, laboratoria, industrie, logistiek, evenementen en gekoeld transport.
 
----
-
-## ✓ Ons assortiment: Droogijs pellets, klompjes, koelelementen & droogijsstraalmachines
-
-Of het nu gaat om transportkoeling, evenementen of industriële reiniging – wij bieden de juiste vorm, hoeveelheid en professionele apparatuur:
-
-* **Droogijs pellets (3mm):** Ideaal voor laboratoria, medisch transport en kleinschalige koeling.
-* **Droogijs nuggets / klompjes (16mm):** De standaard voor horeca, catering, evenementen-effecten en transport.
-* **Droogijs koelelementen / schijven:** Perfect doseerbaar voor gecontroleerde koelketens zonder restvocht.
-* **Industriële reiniging:** Professioneel droogijsstralen met de [TERLATEC PelletBlaster droogijs straalmachine](https://www.trockeneis.shop/nl/product/droogijs-straalmachine-pelletblaster/) – de krachtige oplossing voor effectieve, milieuvriendelijke en residuvrije reiniging in de industrie en werkplaats.
-
-*Direct naar het complete overzicht? Bekijk alle beschikbare opties via ons productlabel [droogijs kopen](https://www.trockeneis.shop/nl/productlabel/droogijs-kopen/).*
+➡️ **Website:** https://www.trockeneis.shop/nl/
 
 ---
 
-## ❄️ Droogijs voor koeling & transport
+## ❄️ Wat is droogijs?
 
-Droogijs is met een temperatuur van **-78,5 °C** het meest efficiënte koelmiddel voor veeleisende logistiek. Omdat het ijs direct overgaat in gas (sublimatie), blijft de verpakking volledig droog. Dit maakt het de standaard voor het transport van diepvriesproducten, levensmiddelen und medische monsters.
+Droogijs is de vaste vorm van kooldioxide (CO₂) met een temperatuur van **−78,5 °C**. In tegenstelling tot gewoon ijs smelt het niet, maar gaat het direct over in gas (sublimatie). Daardoor blijft de verpakking droog en is droogijs ideaal voor transportkoeling, laboratoria, horeca en industriële toepassingen.
 
-* **Geen restvocht:** Ideaal voor gecontroleerde koelketens in de B2B- en logistieke sector.
-* **Versheid garanderen:** Lees meer over de logistieke voordelen van [droogijs voor de verzending van levensmiddelen](https://www.trockeneis.shop/nl/droogijs-voor-de-verzending-van-levensmiddelen-met-behoud-van-versheid-en-kwaliteit/).
+Lees meer in onze uitgebreide gids:
 
----
-
-## 📦 Professionele droogijs opslag & veiligheid
-
-Aangezien droogijs constant verdampt, is een correcte hantering noodzakelijk om volumeverlies (sublimatie) te minimaliseren:
-
-1. **Isolatie:** Bewaar het product altijd in speciaal daarvoor bestemde thermoboxen (zoals onze meegeleverde piepschuim boxen).
-2. **Drukontlasting:** Sluit droogijs nooit luchtdicht af; het expanderende CO2-gas moet kunnen ontsnappen om drukopbouw te voorkomen.
-3. **Informatie:** Uitgebreide antwoorden op technische vragen en veiligheidsvoorschriften vindt u in onze [NL FAQ Droogijs](https://www.trockeneis.shop/nl/faq/).
+👉 https://www.trockeneis.shop/nl/droogijs-faq-nederland-belgie/
 
 ---
 
-## 🚛 Regionale express-levering (bijv. Rotterdam)
+## 📦 Droogijs bestellen
 
-U hoeft uw droogijs niet zelf af te halen bij een lokaal depot of fysieke winkel. Wij leveren via een geoptimaliseerd overnight-netwerk direct aan uw deur, bedrijf of schip.
+Bij Trockeneis.shop kun je onder andere bestellen:
 
-* **Rotterdam & Regio:** Voor de scheepvaart, havenlogistiek und industrie in het havengebied bieden wij een snelle service via onze specifieke pagina voor [Droogijs Rotterdam](https://www.trockeneis.shop/nl/productlabel/droogijs-rotterdam/).
-* **Bestelvoorwaarden:** Bestellingen van maandag t/m donderdag voor 10:00 uur worden de volgende werkdag ijskoud und stabiel verpakt geleverd.
+- Droogijsklompjes (16 mm)
+- Droogijspellets (3 mm)
+- Droogijs-koelelementen
+- Droogijsstraalmachines
 
+Bekijk het volledige assortiment:
+
+👉 https://www.trockeneis.shop/nl/
 
 ---
-*Advertentie / Commerciële inhoud van Trockeneis.shop*  
-[Colofon / Impressum](https://www.trockeneis.shop/nl/opdruk/) | [Privacyverklaring](https://www.trockeneis.shop/nl/verklaring-gegevensbescherming/)  
-[Terug naar de hoofdpagina](README.md) | © [Trockeneis.shop/nl](https://www.trockeneis.shop/nl)
+
+## 🧮 Hoeveel droogijs heb ik nodig?
+
+Met de gratis **Droogijs-calculator** bereken je eenvoudig hoeveel droogijs je nodig hebt voor transport, horeca, evenementen of laboratoriumtoepassingen.
+
+👉 https://www.trockeneis.shop/nl/droogijs-calculator/
+
+---
+
+## 🚛 Snelle levering binnen de Benelux
+
+Wij leveren dagelijks droogijs naar onder andere:
+
+- Rotterdam
+- Amsterdam
+- Utrecht
+- Eindhoven
+- Antwerpen
+- Gent
+- Brussel
+
+Lokale informatie:
+
+- Rotterdam
+  https://www.trockeneis.shop/product-tag/droogijs-rotterdam/
+
+- Amsterdam
+  https://www.trockeneis.shop/product-tag/droogijs-amsterdam/
+
+- Antwerpen
+  https://www.trockeneis.shop/product-tag/droogijs-antwerpen/
+
+---
+
+## 🔒 Veilig omgaan met droogijs
+
+Droogijs moet altijd in een goed geïsoleerde thermobox worden bewaard. Bewaar het nooit in een volledig luchtdichte verpakking, omdat tijdens de sublimatie CO₂-gas ontstaat.
+
+Meer informatie:
+
+👉 FAQ
+https://www.trockeneis.shop/nl/faq/
+
+👉 Veiligheidsinstructies
+https://www.trockeneis.shop/nl/veiligheidsinstructies-droogijs/
+
+---
+
+## Waarom kiezen voor Trockeneis.shop?
+
+- Expresslevering binnen de Benelux
+- Droogijsklompjes, pellets en koelelementen
+- Levering in hoogwaardige thermoboxen
+- Ervaring sinds 2012
+- Specialist en fabrikant van droogijs-, CO₂-sneeuwstraal- en droogijsstraaltechniek
+
+Trockeneis.shop is een aanbod van **TERLATEC engineering GmbH**.
+
+Meer informatie:
+
+https://www.trockeneis.shop/nl/
+
+---
+
+*Advertentie / Commerciële inhoud*
+
+Trockeneis.shop – TERLATEC engineering GmbH
+
+https://www.trockeneis.shop/nl/
