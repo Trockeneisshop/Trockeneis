@@ -80,7 +80,7 @@ https://www.trockeneis.shop/nl/veiligheidsinstructies-droogijs/
 
 ## Waarom kiezen voor Trockeneis.shop?
 
-- Expresslevering binnen de Benelux
+- Snelle levering binnen de Benelux
 - Droogijsklompjes, pellets en koelelementen
 - Levering in hoogwaardige thermoboxen
 - Ervaring sinds 2012
