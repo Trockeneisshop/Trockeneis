@@ -45,7 +45,6 @@ Lesen Sie unsere offiziellen **[Sicherheitshinweise für Trockeneis](https://www
 Bent u op zoek naar de Nederlandse versie of wilt u droogijs bestellen voor de Benelux-regio?
 
 👉 **Bekijk onze speciale gids:**
-👉 **Bekijk onze speciale gids:**
 
 Meer informatie over de eigenschappen en toepassingen van droogijs vind je in [Droogijs: eigenschappen, temperatuur, sublimatie en toepassingen](https://github.com/Trockeneisshop/Trockeneis/blob/main/Droogijs-eigenschappen-temperatuur-sublimatie-en-toepassingen).
 
