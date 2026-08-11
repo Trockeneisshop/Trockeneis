@@ -46,6 +46,8 @@ Bent u op zoek naar de Nederlandse versie of wilt u droogijs bestellen voor de B
 
 👉 **Bekijk onze speciale gids:**
 
+Meer informatie over de eigenschappen en toepassingen van droogijs vind je in [Droogijs: eigenschappen, temperatuur, sublimatie en toepassingen](Droogijs-eigenschappen-temperatuur-sublimatie-en-toepassingen.md)
+
 [Droogijs kopen Benelux (Nederlands)](droogijs-kopen-benelux.md)
 
 **Voor Nederlandse klanten:**  
